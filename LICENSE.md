@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative cross-margin trading bot | high-frequency + liquidity-provision, the #1 cross-margin trading bot. Includes high-frequency and
 
 
 
